@@ -1,0 +1,3 @@
+J 18 - THE GOSSIP PROJECT 
+
+Kise SHARY
